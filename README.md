@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @maritim1945
+- 👋 Hi, I’m from Alfamarts
 - 👀 I’m interested in stuff
 - 🌱 I’m currently learning 1337
 - 💞️ I’m looking to collaborate on few ppl
